@@ -1,3 +1,3 @@
-# 🍈🍔 Lava Gluttons
+# 🍈🫂🤝 Lava Pals
 
-BONELAB centric org. We shall consume all knowledge.
+`BONELAB centric org. Consume all knowledge and regurgitate for all.`
